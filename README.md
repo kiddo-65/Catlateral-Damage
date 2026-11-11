@@ -220,4 +220,4 @@ Catlateral Damage is offered as a full free version with all features and update
 Join the fun and download Catlateral Damage today! Experience the delightful chaos of being a cat and make your mark in the world of simulation games!
 
 ---
-**Last updated:** 2026-11-11 09:05:57 UTC
+**Last updated:** 2026-11-11 17:48:52 UTC
